@@ -1,2 +1,2 @@
 # app_dev_1
-pierwsze zajęcia
+pierwsze zajęcia blaalalals
